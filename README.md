@@ -7,7 +7,7 @@ I usually play around with C++ python.
 
 Few years ago, I was a model maker with Maya, but that was a long story. 
 
-Hope u Enjoy ur life.
+Hope u Enjoy ur life. Peace!!
 
 <!--
 **lbgpaul/lbgpaul** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
