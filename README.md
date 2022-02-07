@@ -12,7 +12,7 @@ I love coding, typing, learning language, Anime and FPS Gaming.
 
 Hope one day I can speak many language around the world.
 
-Hope u Enjoy ur life. Peace!!
+Have a good one. Peace!!
 
 <!--
 **lbgpaul/lbgpaul** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
