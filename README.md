@@ -8,8 +8,9 @@ I usually play around with C++ python.
 
 Few years ago, I was a model maker with Maya, but that was a long story.
 
-I love coding, typing, learning language, Anime and FPS Gaming
-Hope one day I can speak every language around the world, including "Mars-ese" lol.
+I love coding, typing, learning language, Anime and FPS Gaming.
+
+Hope one day I can speak many language around the world.
 
 Hope u Enjoy ur life. Peace!!
 
